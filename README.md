@@ -1,6 +1,6 @@
 # Privacy Policy / Datenschutzerklärung
 
-**Last updated:** [Insert Date, e.g., January 3, 2026]
+**Last updated:** [January 3, 2026]
 
 ## 🇬🇧 English
 
